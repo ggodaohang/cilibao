@@ -3,6 +3,7 @@
 <p>磁力宝的核心功能包括精准的磁力搜索、资源筛选与排序、云播放以及极速下载等。用户只需在搜索框中输入关键词，即可快速找到所需的资源，并根据资源类型、大小、下载速度等条件进行筛选和排序，从而更高效地完成搜索任务。此外，磁力宝还支持批量下载和多线程下载技术，进一步提升用户的下载效率。</p>
 <p>磁力宝平台界面简洁易用，无需注册登录即可使用，操作流程简单直观。无论是初次使用的用户还是经验丰富的老用户，都能轻松上手。同时，磁力宝还注重用户体验，界面无广告干扰，为用户提供了一个干净舒适的使用环境。</p>
 <p><strong>一键访问：</strong><a href="https://cilibao.litxdh.com " target="_blank"><strong>磁力宝最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com" target="_blank"><strong>磁力导航网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
